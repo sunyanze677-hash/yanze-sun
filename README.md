@@ -41,5 +41,5 @@ B.M. in Engineering Management | 2026
 
 ## Connect With Me
 
-- LinkedIn: [Your LinkedIn URL]
-- Email: [Your Professional Email]
+- LinkedIn: [www.linkedin.com/in/jasmine-sun-828943443]
+- Email: [sunyanze677@gmail.com]
